@@ -1,6 +1,6 @@
 ### Hi there, I'm Sid👋 
 
-## I'm a second-year undergraduate student from New York University.
+## I'm a third-year undergraduate student from New York University.
 
 I chose to major in computer science because it affords me the 
 opportunity to explore my passion for solving problems with my hand. 
