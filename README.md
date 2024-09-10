@@ -7,5 +7,3 @@ opportunity to explore my passion for solving problems with my hand.
 I love to engage in this end-to-end experience which is fulfilling to me
 because I get to not only brings up an idea but also
 bring it to fruition.
-
-I am also interested in video games. I have always wanted to become an indie game developer in the future.
